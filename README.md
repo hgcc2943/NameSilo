@@ -16,9 +16,9 @@ NameSilo为用户提供了多种优惠码，无论是新购还是续费，都能
 
 | NameSilo优惠码 | 折扣力度 | 适用条件 |
 | ---- | ---- | ---- |
-| [SVNSONEOFF](https://www.namesilo.com/?rid=2175b31hy) | 立减1美元 | 购买任意后缀域名 |
-| [SVNSDISONE](https://www.namesilo.com/?rid=2175b31hy) | 立减1美元 | 购买任意后缀域名 |
-| [duymjoff](https://www.namesilo.com/?rid=2175b31hy) | 立减1美元 | 购买任意后缀域名 |
+| [VIP1688](https://www.namesilo.com/?rid=2175b31hy) | 立减1美元 | 购买任意后缀域名 |
+| [2024YOUHUI](https://www.namesilo.com/?rid=2175b31hy) | 立减1美元 | 购买任意后缀域名 |
+
 
 
 ### NameSilo黑五促销活动
